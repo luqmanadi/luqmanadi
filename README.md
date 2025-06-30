@@ -2,8 +2,6 @@
 
 Perkenalkan nama saya **Luqman Adi Wibowo**.
 
-Saya seorang **Mahasiswa Semester 8** di [UIN Walisongo](https://walisongo.ac.id/).
-
 Saya alumni Bangkit 2023 Batch 2 dengan role Mobile Development.
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun di bawah ini yaaa:
